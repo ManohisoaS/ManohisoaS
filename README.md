@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @ManohisoaS
-- 👀 I’m interested in Machine learning and IOT
-- 🌱 I’m currently learning Data analysis
-- 💞️ I’m looking to collaborate on Machine learning project
+- You need someone who love code? you can contact me
+- I am ready for new challenge
 - 📫 How to reach me manohisoa.randrianantenaina@gmail.com
 
 <!---
