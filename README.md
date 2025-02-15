@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ManohisoaS
 - You need someone who love code? you can contact me
-- I am ready for new challenge
+- Just one condition,it must be fun so I am ready for new challenge.
 - 📫 How to reach me manohisoa.randrianantenaina@gmail.com
 
 <!---
